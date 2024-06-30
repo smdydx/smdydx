@@ -1,5 +1,5 @@
 
-![Uploading machine.gif…]()
+
 # 💫 About Me:
 To work in a competitive environment on challenging projects and assignments that shall yield twin benefits of job satisfaction and steady paced professional growth. 
 
