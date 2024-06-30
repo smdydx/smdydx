@@ -1,6 +1,7 @@
 
+![Untitled design](https://github.com/smdydx/smdydx/assets/77625439/59968f88-24b0-417f-9bc4-9e833d544890)
 
-https://github.com/smdydx/smdydx/assets/77625439/fe5f4d84-e4b7-401f-9f7c-34722b891647
+
 
 # 💫 About Me:
 To work in a competitive environment on challenging projects and assignments that shall yield twin benefits of job satisfaction and steady paced professional growth. 
